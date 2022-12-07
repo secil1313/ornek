@@ -1,2 +1,0 @@
-# FileOrnegi
-# FileOrnegi
